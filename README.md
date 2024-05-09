@@ -11,5 +11,4 @@ meu nome é Rafael Kostecki
 00001110203755sp@al.educacao.sp.gov.br
 
 
-
-![](https://media1.tenor.com/m/wPudCfjCrD8AAAAC/penguin-hello.gif)
+![](https://media1.tenor.com/m/IL9DJ6fsEE4AAAAC/hyper-is-here-chat.gif)
